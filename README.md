@@ -10,5 +10,4 @@
 
 - [❄️](https://discord.gg/5PSscFbzGZ) How to reach me more easily: call me in discord! Gawr#1408
 
-- ⚡ Fun fact: I’m very hyperactive so I’m always looking to learn more to satisfy my curiosity 
---> [The Last Lord](https://discordapp.com/api/guilds/811063189617770508/widget.json)
+- ⚡ Fun fact: I’m very hyperactive so I’m always looking to learn more to satisfy my curiosity!
