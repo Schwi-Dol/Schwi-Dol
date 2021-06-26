@@ -8,6 +8,6 @@
 
 - if you have any questions you can ask me, i will be here 🤭
 
-- ❄️ How to reach me more easily: call me in discord! Gawr#1408
+- ❄️ How to reach me more easily: call me in discord! O Meel#1408
 
 - ⚡ Fun fact: I’m very hyperactive so I’m always looking to learn more to satisfy my curiosity!
