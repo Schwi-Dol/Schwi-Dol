@@ -8,6 +8,6 @@
 
 - if you have any questions you can ask me, i will be here 🤭
 
-- ❄️ How to reach me more easily: call me in discord! Zero_#7217
+- ❄️ How to reach me more easily: call me in discord! Zero_#1816
 
 - ⚡ Fun fact: I’m very hyperactive so I’m always looking to learn more to satisfy my curiosity!
